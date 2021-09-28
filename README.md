@@ -1,4 +1,4 @@
-- 👋 Hi, I’m prof. Lee
+- 👋 Hi, I’m prof. Y.H, Lee
 - 👀 I’m interested in computer and related articles
 - 🌱 I’m currently learning with my friend and student about all of ICT-related Materials
 
